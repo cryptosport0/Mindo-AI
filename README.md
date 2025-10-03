@@ -31,3 +31,11 @@ We’re building this journey **together with the community**.
 ---
 
 💡 Early movers always win. Join now and help shape the InfoFi revolution.  
+
+
+## 🆕 Latest Updates
+
+- 🎙 **Community Call** scheduled — Mindo AI team will present the vision, key features and roadmap.  
+- 🌍 Launch of the **interactive influence map** (earn points for future rewards).  
+- 🎖 **OG Role** available on Discord for early adopters (limited time).  
+- 🔜 Upcoming: more details on partnerships and tokenomics. Stay tuned!
