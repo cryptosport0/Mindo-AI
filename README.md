@@ -39,3 +39,29 @@ We’re building this journey **together with the community**.
 - 🌍 Launch of the **interactive influence map** (earn points for future rewards).  
 - 🎖 **OG Role** available on Discord for early adopters (limited time).  
 - 🔜 Upcoming: more details on partnerships and tokenomics. Stay tuned!
+
+## 🆕 Community Update — October 2025  
+
+We’re excited to announce **Mindo AI’s first Content Contest**! 🎨  
+
+The challenge: create the best **infographic** showcasing the incredible growth of our Discord community.  
+Between **September 23 and 26**, Mindo AI’s Discord skyrocketed from **952 to over 59,000 members** — a true InfoFi moment!  
+
+📅 **Contest Duration:**  
+October 6 → October 13, 2025  
+
+🏆 **Rewards:**  
+1st — 800 XP  
+2nd — 600 XP  
+3rd — 500 XP  
+4th — 400 XP  
+5th — 300 XP  
+
+💬 **How to Join:**  
+1. Create your infographic showing Mindo AI’s Discord growth.  
+2. Post it on X (Twitter) and tag **@MindoAI**.  
+3. Share your tweet in the Discord channel `📸┃twitter-content`.  
+
+The **top 5 entries** will be selected by the Mindo AI team, and the **winner** will receive an **official repost** from @MindoAI.  
+
+✨ Let’s celebrate community growth and creativity together — the InfoFi revolution is just getting started.
