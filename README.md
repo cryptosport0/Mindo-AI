@@ -65,3 +65,24 @@ October 6 → October 13, 2025
 The **top 5 entries** will be selected by the Mindo AI team, and the **winner** will receive an **official repost** from @MindoAI.  
 
 ✨ Let’s celebrate community growth and creativity together — the InfoFi revolution is just getting started.
+
+
+The Mindo AI ecosystem keeps evolving fast!  
+
+Here’s what’s new this week:  
+
+✅ **Community Growth:**  
+From 952 to 59,000+ members in just 3 days — a massive milestone for the Mindo AI family.  
+
+✅ **Content Contest Live:**  
+Our first community-driven challenge is on! Creators are showcasing their vision of Mindo’s growth through unique infographics. Top entries will get XP rewards and an official repost from @MindoAI.  
+
+✅ **InfoFi Expansion:**  
+The InfoFi meta is gaining traction — more creators are connecting their wallets and building influence maps at [mindoshare.ai](https://mindoshare.ai/kol?ref=cmeppf3rz05tho73w610zksa5).  
+
+👀 **Coming Next:**  
+- New creator engagement tools  
+- Dashboard improvements  
+- Community leaderboard  
+
+The movement is just beginning. Join the InfoFi era with us. 💡  
