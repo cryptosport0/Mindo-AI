@@ -86,3 +86,28 @@ The InfoFi meta is gaining traction — more creators are connecting their walle
 - Community leaderboard  
 
 The movement is just beginning. Join the InfoFi era with us. 💡  
+
+## 🌟 Weekly Update — October 2025  
+
+Mindo AI keeps gaining momentum!  
+
+### 🔹 Community Growth  
+Our Discord community has exploded from **952 to over 59,000 members** in just a few days — a huge leap for InfoFi adoption.  
+
+### 🔹 Content Contest Live  
+We launched the **first official Mindo AI Content Contest**!  
+Creators are designing infographics showcasing this incredible growth.  
+Top 5 entries will earn XP rewards — and the winner gets a repost from @MindoAI.  
+
+### 🔹 Platform Updates  
+- Enhanced user experience on [mindoshare.ai](https://mindoshare.ai/kol?ref=cmeppf3rz05tho73w610zksa5)  
+- Creator influence maps now live  
+- OG role distribution continues on Discord  
+
+### 🔹 Coming Soon  
+- Public leaderboard launch  
+- Early access to InfoFi scoring features  
+- New social integrations  
+
+> The InfoFi revolution keeps accelerating — attention is the new capital. 💡
+
