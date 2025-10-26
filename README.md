@@ -111,3 +111,9 @@ Top 5 entries will earn XP rewards — and the winner gets a repost from @MindoA
 
 > The InfoFi revolution keeps accelerating — attention is the new capital. 💡
 
+### 🚀 Explosive Growth  
+Our Discord jumped from **952 to 59,000+ members** in only a few days — a clear sign that the InfoFi vision is resonating with creators worldwide.  
+
+### 🧠 First Content Contest  
+We’ve launched our very first **Content Contest** where creators design infographics showing this incredible community growth.  
+The top 5 will earn XP rewards, and the winner will get a repost from **@MindoAI** on X.  
